@@ -1,1 +1,1 @@
-# rsschool-cv
+https://swagrog.github.io/rsschool-cv/cv
